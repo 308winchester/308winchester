@@ -11,6 +11,6 @@
    <p align="center">
 <a href="https://pronouns.cc/@308winchester">prns.cc</a>
 <p align="center">
-mdni , mentally ill , always iwc
+eden , he him , mdni
   <p align="center">
    <img src="https://64.media.tumblr.com/c053259c2bde4de3052b369a419393e4/1e63de4ee2571a13-45/s1280x1920/456b731990ff637608319ac8441c246ba107cd51.pnj" alt="div" width="450" title="div">
